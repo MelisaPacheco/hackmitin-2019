@@ -1,0 +1,5 @@
++++Teresa de Lauretis+++ acuñó por primera vez el término _'Teoría queer'_ en 1990 - La cultura queer llevaba cuajándose dos décadas antes—. En 1994 abandonó su estudio por juzgar que la palabra queer había desembarcado en las academias y universidades vaciando su contenido.
+
+_\《 Mi proyecto de teoría queer era un proyecto crítico cuyo objetivo era deshacer o resistir a la homogeneización cultural y sexual en el ámbito académico de los estudios lésbicos y gais así llamados. Mi proyecto de teoría queer consistía en iniciar un diálogo entre lesbianas y hombres gais sobre la sexualidad y sobre nuestras respectivas historias sexuales. Yo esperaba que juntos, romperíamos los __silencios__ que se habían construido en los estudios lésbicos y gais entorno a la sexualidad y su interrelación entre sexo y raza. Quería __construir_ otro horizonte discursivo y otra manera de __pensar__ lo sexual. Pensando en la subsiguiente evolución de la teoría queer, ya no estoy segura. El grado que yo esperaba no se produjo\》._
+
+\[++Teresa de Lauretis+++\]
